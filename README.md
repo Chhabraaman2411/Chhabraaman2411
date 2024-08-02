@@ -6,7 +6,6 @@
 
 - 📫 How to reach me **Chhabra.aman80492@gmail.com**
 
-- 📄 Know about my experiences [file:///C:/Users/Lenovo/OneDrive/Desktop/A.Resume.pdf](file:///C:/Users/Lenovo/OneDrive/Desktop/A.Resume.pdf)
 
 - ⚡ Fun fact **Always on the lookout for the next big idea!**
 
